@@ -6,3 +6,12 @@ joinchat/FuVoYTDG7IeQh6q5
 blue2072
 aweikeji
 xiaodongchannel
+byxiaoxi
+baipiaojiedian
+V2List
+Shadowsocks_R
+SSRSUB
+ShadowsocksRssr
+chaopin666
+Shadowrocket_vpn
+dafeiji100
