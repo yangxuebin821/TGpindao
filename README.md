@@ -15,3 +15,4 @@ ShadowsocksRssr
 chaopin666
 Shadowrocket_vpn
 dafeiji100
+ssrList
